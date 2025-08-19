@@ -1,1 +1,1 @@
-im gonna be real, idk why im doing this, other than obligation
+im gonna be real, i dint know what im doing
